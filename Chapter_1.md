@@ -29,4 +29,4 @@ Dan itulah awal dari **Legenda Darah Iblis**—saat Seth memutuskan untuk menant
 
 ---
 
-**<p align="right">~ Bersambung ke Chapter 2 ~</p>**)
+**<p align="right">~ Bersambung ke Chapter 2 ~</p>**
