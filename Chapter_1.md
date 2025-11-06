@@ -1,6 +1,6 @@
 # 🩸 Chapter 1: Bayi dari Jurang Abyss
 
-*(### <a name="chapter-1"></a>Chapter 1 — Abyss Veil yang Terlupakan
+*(Abyss Veil yang Terlupakan
 
 Langit kelam tanpa bintang menggantung di atas jurang tak berdasar. Angin hitam berdesir lembut, membawa aroma kematian yang pekat. Di tengah kehampaan itu, seorang bayi menangis—suara yang memecah keheningan ribuan tahun.
 
@@ -30,4 +30,4 @@ Dan itulah awal dari **Legenda Darah Iblis**—saat Seth memutuskan untuk menant
 
 ---
 
-**<p align="right">~ Bersambung ke Chapter 2 ~</p>**)*
+**<p align="right">~ Bersambung ke Chapter 2 ~</p>**)
