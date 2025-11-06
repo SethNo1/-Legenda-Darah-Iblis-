@@ -1,6 +1,5 @@
 # 🩸 Chapter 1: Bayi dari Jurang Abyss
 
-*(Abyss Veil yang Terlupakan
 
 Langit kelam tanpa bintang menggantung di atas jurang tak berdasar. Angin hitam berdesir lembut, membawa aroma kematian yang pekat. Di tengah kehampaan itu, seorang bayi menangis—suara yang memecah keheningan ribuan tahun.
 
